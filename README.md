@@ -18,7 +18,14 @@ BABQFTIM skins - I despise both the AU itself and more importantly it's creator.
 Plus, **I'm 18**. So, please don't try to be friends if you're not at least 16+. (I'm typically in the 18+ server anyway.)
 
 
-Other than that, I'm always down 2 talk and whtevr, so never be afraid 2 interact!!
+Other than that, I'm always down 2 talk and whtevr, so never be afraid 2 interact!! + If I ever don't respond I didn't see ur message!! So you can whisper me to make sure I do!
+
+ESPECIALLY if ur a fan of any of my faves, tho ESP FBACC. If u have any FBACC skins then absolutely show me I wanna see!! XD 
+
+And I def don't mind showing some of mine as well. :D I currenly have around 42 FBACC skins!! ^_^
+
+That being said, you don't HAVE to be a fan of any of my interests to talk, if you want to talk to me for any reason I'll respond. XD
+
 
 ![image](https://i.pinimg.com/736x/4d/f9/ee/4df9eed2910fea4ae6446cbc7aa75726.jpg)
 

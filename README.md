@@ -10,10 +10,11 @@ I don't really have a DNI or anything, except for things taht should be common s
 
 **though there are also a few types of skins I'll hide for:**
 
-Skins of actual serial killers/shooters, or anything along those lines.
+Skins of actual serial killers/shooters, hitler, or anything along those lines
 
-BABQFTIM skins - I despise both the AU itself and more importantly it's creator. It makes me uncomfortable so I hide every skin of it I see. Sorry.
+BABQFTIM skins
 
+nd thats pretty much it
 
 Plus, **I'm 18**. So, please don't try to be friends if you're not at least 16+. (I'm typically in the 18+ server anyway.)
 

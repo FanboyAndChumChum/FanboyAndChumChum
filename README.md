@@ -27,6 +27,8 @@ And I def don't mind showing some of mine as well. :D I currenly have around 42 
 
 That being said, you don't HAVE to be a fan of any of my interests to talk, if you want to talk to me for any reason I'll respond. XD
 
+My discord username is fbacc, I also have an acc called fanboy_and_chumchum some people might know! But, I'm moving to fbacc.
+
 
 ![image](https://i.pinimg.com/736x/4d/f9/ee/4df9eed2910fea4ae6446cbc7aa75726.jpg)
 

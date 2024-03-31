@@ -6,17 +6,11 @@ I am the **#1 FAN** of **Fanboy and Chum Chum**!! :D
 
 **I really don't take this game srsly at all, I just thought it'd be fun to make one of these. :p** 
 
-I don't really have a DNI or anything, except for things that should be common sense anyways **(proshippers, homophobes, etc go away)**, 
+I don't really have a DNI or anything, except for things that should be common sense anyways **(proshippers, homophobes, you get the idea)**. I doubt those people would even listen anyways either, but just know I will hide you.
 
-**Though there are also a few types of skins I hide when I see them:**
+**Though there are also a few types of skins I hide when I see them**, including skins of actual serial killers/shooters, hitler skins, and other things along those lines for obvious reasons. WAY less serious but I also hide all BABQFTIM skins I see, because I don't want to see them. And that's all I really feel the need to list.
 
-Skins of actual serial killers/shooters, hitler, or anything along those lines
-
-BABQFTIM skins
-
-nd thats pretty much all I feel the need to list.
-
-Plus, **I'm 18**. So, please don't try to be friends if you're not at least 16+. (I'm typically in the 18+ server anyway.)
+Also, **I'm 18**. So, please don't try to be friends if you're not at least 16+. (I'm typically in the 18+ server anyway.)
 
 
 Other than that, I'm always down 2 talk and whtevr, so never be afraid 2 interact!! + If I ever don't respond I didn't see ur message!! So you can whisper me to make sure I do!

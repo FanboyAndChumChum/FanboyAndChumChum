@@ -1,27 +1,30 @@
 Hihihi1! 
 U can call me **Chum** or *Bendy* (if you know me by a different name, thats fine too) :3
 
-I am the **#1 FAN** of **Fanboy and Chum Chum**!! :D 
-& **Bendy**, too!! ^_^ I also LOVE *Invader Zim*, *Littlest Pet Shop (the toys & the cartoons)*, *Whatever Happened To...Robot Jones?*, and *Fandroid*!! :]
+I'm 18, and I am the **#1 FAN** of **Fanboy and Chum Chum**!! :D 
+& **Bendy**, too!! ^_^ I also LOVE *Invader Zim*, *Whatever Happened To...Robot Jones?*, *Fandroid*, LPS (the toys & the cartoons), & MLP !! :]
 
-**I really don't take this game srsly at all, I just thought it'd be fun to make one of these. :p** 
+**Side note: I really don't take this game srsly at all, I just thought it'd be fun to make one of these. :p** 
 
-I don't really have a DNI or anything, except for things that should be common sense anyways **(proshippers, homophobes, you get the idea)**. I doubt those people would even listen anyways either, but just know I will hide you.
+--
 
-**Though there are also a few types of skins I hide when I see them**, including skins of actual serial killers/shooters, hitler skins, and other things along those lines for obvious reasons. WAY less serious but I also hide all BABQFTIM skins I see, because I don't want to see them. And that's all I really feel the need to list.
+I'm always down 2 talk and whtevr, so **never be afraid 2 interact!! + If I ever don't respond I didn't see ur message!! So you can whisper me to make sure I do!**
 
-Also, **I'm 18**. So, please don't try to be friends if you're not at least 16+. (I'm typically in the 18+ server anyway.)
+ESPECIALLY if ur a fan of any of my faves, **tho ESP FBACC. If u have any FBACC skins then absolutely show me I wanna see!! XD** 
 
-
-Other than that, I'm always down 2 talk and whtevr, so never be afraid 2 interact!! + If I ever don't respond I didn't see ur message!! So you can whisper me to make sure I do!
-
-ESPECIALLY if ur a fan of any of my faves, tho ESP FBACC. If u have any FBACC skins then absolutely show me I wanna see!! XD 
-
-And I def don't mind showing some of mine as well. :D Rn I have around 57 FBACC skins!! ^_^
+And I def don't mind showing some of mine as well. :D Rn I have around 67 FBACC skins!! ^_^
 
 That being said, you don't HAVE to be a fan of any of my interests to talk, if you want to talk to me for any reason I'll respond. XD
 
-My discord username is fanboy_and_chumchum ! Feel free to send me a request. :3
+--
+
+I don't have a DNI or anything, only things that should be common sense anyways **(homophobes, proshippers, you get the idea)**. I doubt those people would even listen anyways either, but just know I will hide you.
+
+There are **certain types of skins I hide for**, including skins of actual serial killers or shooters, hitler skins, and other things along those lines for obvious reasons. WAY less serious but I also at least temp hide all BABQFTIM skins I see, not saying anything about you as a person for liking it I just hate that au lol
+
+Also, last thing, as I mentioned before I am 18, so please don't try to be friends if you're not at least 16+. (I'm typically in the 18+ server anyway.)
+
+--
 
 
 ![image](https://i.pinimg.com/736x/4d/f9/ee/4df9eed2910fea4ae6446cbc7aa75726.jpg)

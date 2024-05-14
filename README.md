@@ -10,7 +10,9 @@ I'm 18, and I am the **#1 FAN of Fanboy and Chum Chum**!! :D
 
 I'm always down 2 talk and whtevr, so **never be afraid 2 interact!! + If I ever don't respond I didn't see ur message!! So you can whisper me to make sure I do!**
 
-ESPECIALLY if ur a fan of any of my faves, **tho ESP FBACC. If u have any FBACC skins then absolutely show me I wanna see!! XD** 
+ESPECIALLY if ur a fan of any of my faves, **tho ESP FBACC.** 
+
+**If u have any FBACC skins then absolutely show me I wanna see!! XD** 
 
 And I def don't mind showing some of mine as well. :D Rn I litearlly have around 67 FBACC skins!! ^_^
 

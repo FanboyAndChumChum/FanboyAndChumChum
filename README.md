@@ -20,9 +20,8 @@ That being said, you don't HAVE to be a fan of any of my interests to talk, if y
 
 --
 
-I don't have a DNI or anything, only things that should be common sense anyways(ppl who r homophobic,ship children w adults or incest ships,you get the idea). I doubt those people would even listen anyways either, but just know I will hide you.
+I don't have a DNI or anything, only things that should be common sense anyways(and yes that includes ppl who ship children w adults or incest ships,i dont want to be around you). I doubt those people would even listen anyways either, but just know I will hide you. Basically just be a decent person and ur fine!! 
 
-I will note there are **certain types of skins I hide for**, including skins of actual serial killers or shooters, hitler skins, and other things along those lines for obvious reasons. WAYWAAY less serious but I often at least temp hide any BABQFTIM skins I see, not saying anything about you as a person for liking it + fans of it ARE allowed to interact, I just hate that au lol
 
 Also, last thing, as I mentioned before I am 18, so please don't try to be friends if you're not at least 16+. (I'm typically in the 18+ server anyway.)
 

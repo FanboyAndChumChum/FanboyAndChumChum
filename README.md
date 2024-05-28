@@ -30,4 +30,4 @@ Also, last thing, as I mentioned before I am 18, so please don't try to be frien
 
 ![image](https://i.pinimg.com/736x/4d/f9/ee/4df9eed2910fea4ae6446cbc7aa75726.jpg)
 
-^ silly  doodle :p
+ :p

@@ -2,7 +2,7 @@ Hihihi1!
 U can call me **Chum** or *Bendy* (if you know me by a different name, thats fine too) :3
 
 I'm 18, and I am the **#1 FAN of Fanboy and Chum Chum**!! :D 
-& I rlly rlly love **Bendy**, too!! ^_^ I also LOVE *Invader Zim*, *Whatever Happened To...Robot Jones?*, *Fandroid*, *Spongebob*, LPS (the toys & the cartoons), the Disney Afternoon (Esp Bonkers & DWD), the Sensational Six, & MLP !! :]
+I also LOVE *Bendy*, *My Hero Academia*, *Invader Zim*, *Whatever Happened To...Robot Jones?*, *Fandroid*, *Spongebob*, LPS (the toys & the cartoons), the Disney Afternoon (Esp Bonkers & DWD), the Sensational Six, & MLP !! :]
 
 **Side note: I really don't take this game srsly at all, I just thought it'd be fun to make one of these. :p** 
 

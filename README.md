@@ -1,3 +1,4 @@
+<img src="https://github.com/favicon.ico" width="48">
 - 18, & THE **#1 FAN of Fanboy and Chum Chum**!! :D 
 
 - My other interests are: *My Hero Academia*, *Bendy*, *Invader Zim*, *Whatever Happened To...Robot Jones?*, *Fandroid*, *Spongebob*, LPS, the Disney Afternoon(Esp Bonkers & DWD), the Sensational Six, & MLP !! :]

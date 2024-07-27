@@ -13,4 +13,3 @@
 - Also, last thing, as I mentioned before I am 18, so please don't try to be friends if you're 14 or younger. (I'm typically in the 18+ server anyway.)
 
 **Side note: I really don't take this game srsly at all, I just thought it'd be fun to make one of these. :p** 
-<img src="https://i.pinimg.com/736x/10/89/71/108971f213d17c8ff308c80430d463db.jpg" width="600">

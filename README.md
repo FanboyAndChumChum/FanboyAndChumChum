@@ -13,3 +13,5 @@
 - Also, last thing, as I mentioned before I am 18, so please don't try to be friends if you're 14 or younger. (I'm typically in the 18+ server anyway.)
 
 **Side note: I really don't take this game srsly at all, I just thought it'd be fun to make one of these. :p** 
+
+<img src="https://static.wikia.nocookie.net/fbandcc/images/f/f0/Fanboy_falling_into_underworld_%28Get_You_Next_Time%29.jpg/revision/latest/scale-to-width-down/1000?cb=20240726035827" width="700">

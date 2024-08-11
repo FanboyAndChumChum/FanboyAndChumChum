@@ -2,7 +2,7 @@
 
 - **!! 18, only int if you're at least 15 !!**
   
-- Literally THE **#1 FANBOY AND CHUM CHUM FAN EVER 4EVER** !!!! ^_^
+- Literally THE **#1 FANBOY AND CHUM CHUM FAN EVER 4EVER !!!! ^_^**
 
 - My other interests are: *My Hero Academia*(I'M LITERALLY MINETA'S BIGGEST FAN !!!), *Bendy*, *Invader Zim*, *Whatever Happened To...Robot Jones?*, *Fandroid*, *Spongebob*, LPS, the Disney Afternoon(Esp Bonkers & DWD), the Sensational Six, & MLP !! :]
 

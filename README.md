@@ -1,6 +1,6 @@
 <img src="https://i.pinimg.com/736x/35/f8/27/35f827f70ebe8c2bc265469b0bbbe72c.jpg" width="600">
 
-- !! 18, only int if you're at least 15 !!
+- **!! 18, only int if you're at least 15 !!**
   
 - Literally THE **#1 FANBOY AND CHUM CHUM FAN EVER 4EVER** !!!! ^_^
 

@@ -1,5 +1,5 @@
 - **!! 19, only int if you're at least 15+ !!**
-  - Literally THE **#1 FANBOY AND CHUM CHUM + MINETA FAN EVER 4EVER !!!! ^_^**
+- Literally THE **#1 FANBOY AND CHUM CHUM + MINETA FAN EVER 4EVER !!!! ^_^**
 - My other interests are: *Bendy*, *Invader Zim*, *Whatever Happened To...Robot Jones?*, *Fandroid*, *Spongebob*, LPS, the Disney Afternoon(Esp Bonkers & DWD), the Sensational Six, & MLP !! :]
 - I'm always down 2 talk and whtevr, so **never be afraid 2 interact!! + If I ever don't respond I didn't see ur message!! So you can whisper me to make sure I do!**
 - If you share any of my interests feel free to show me your skins of them, ESPECIALLY FBACC. I love seeing FBACC skins. I LOVE FBACC. I actually have around 67 FBACC skins! ^_^ 

@@ -1,5 +1,5 @@
 - !! I'm 19, 15- DNI !!
-- THE #1 FBACC + MINORU MINETA FAN EVR!!! ^_^ 
+- THE #1 MINORU MINETA + FBACC FAN EVR!!! ^_^ 
 - I don't have a real dni, I'll jst hide you.
 - Other than that, never be afraid to interact!! I'm always willing to talk
 - If you want you can ask for my discord ! And that's all rlly
